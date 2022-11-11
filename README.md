@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @towshick71
 - 👀 I’m interested in ... not talking
-- 🌱 I’m currently learning ... nothing actually
+- 🌱 I’m currently learning ... how to productize thyself
 - 💞️ I’m looking to collaborate on ... not interested, i want to be left alone.it's comfortable
 - 📫 How to reach me ... DON'T
 
